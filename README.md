@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @trinitytyna
+- 👋 Hi, I’m @TRINITY
+
 
 - 📫 How to reach me email tenacity@gmail.com
 
