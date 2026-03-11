@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @trinitytyna
--
+
 - 📫 How to reach me email tenacity@gmail.com
 
 <!---
